@@ -1,1 +1,0 @@
-# PATYUCH.github.io
